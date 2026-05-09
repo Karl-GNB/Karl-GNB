@@ -12,4 +12,4 @@ image is a placeholder trust
 
  @Thehoteldoors-  @Pixelbrickz- best oomfs ever! 
 
- coolest people following me..? whats happening...? 
+  huge cuddler! c+h encouragement 
