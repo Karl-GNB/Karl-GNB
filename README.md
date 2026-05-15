@@ -31,7 +31,7 @@ $\texttt{\color{78776D}' ...𝘈𝘮 𝘐 𝘵𝘳𝘢𝘶𝘮𝘢𝘵𝘪𝘻�
 <div align="center" 
 
 
-$\texttt{\color{78776D}'﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}$
+lyrics
 
 
 
